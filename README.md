@@ -1,1 +1,1 @@
-# Onepage-Template-Seminar
+# Onepage Template Seminar
